@@ -1,0 +1,10 @@
+- Hi, I'm @SkelletonByte
+- 👀 I'm interested in C# programming, game design, game creation, music, video editing, animation.
+- 🌱 I am currently studying C# Unity, Economics.
+- 💞️ I'm looking for collaboration on programmers, 3d artists, musicians, game designers, 2D artists.
+- 📫 How to contact me
+-   Gmail - skelletonbytestudio@gmail.com
+-   Discord - @skelletonbyte
+-   
+- 😄 Pronouns: Whatever.
+- ⚡ Fun fact: does not existю
